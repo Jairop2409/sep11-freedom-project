@@ -1,5 +1,6 @@
-# Entry 1
-##### X/X/XX
+# Entry 1- Kaboom 
+##### 11/19/24
+*
 
 Text
 
